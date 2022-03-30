@@ -1,0 +1,3 @@
+- @yourmotherisquiteobese
+- I’m looking to collaborate on really simple projects
+- contact me elliotrighter@gmail.com
